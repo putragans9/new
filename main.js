@@ -1,4 +1,4 @@
-/*Inget ye ajg
+/*Inget ye ajg p
 ini di enc jangan sampek luh ubah²
 kesel bet dah gw ama anak kek gitu
 ada sedikit langkah disini jadi gw enc
